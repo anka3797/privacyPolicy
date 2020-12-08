@@ -1,0 +1,2 @@
+# privacyPolicy
+Zolynu Namai PrivacyPlicy
